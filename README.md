@@ -39,7 +39,7 @@ Enjoy the ultimate cloud gaming experience on your mobile with Chikii MOD APK! G
 
 ---
 
-![Games List](https://vpmods.com/wp-content/uploads/2023/11/chikii-gta5-rdr2-mortal-kombat.webp)
+![Games List](https://vpmods.com/wp-content/uploads/2025/06/hq720.avif)
 
 ---
 
